@@ -2,15 +2,15 @@
   
   
   
-## 第一天视频地址：
+## &emsp;&emsp;第一天视频地址：
 * 哔哩哔哩观看方式：[https://www.bilibili.com/video/av87168712/](https://www.bilibili.com/video/av87168712/)  
 * 西瓜视频观看方式：[https://www.ixigua.com/i6790342084839604747/](https://www.ixigua.com/i6790342084839604747/)  
 ## 第二天视频地址：
-* 哔哩哔哩观看方式：[敬请期待]()  
+* 哔哩哔哩观看方式：[https://www.bilibili.com/video/av87547951/](https://www.bilibili.com/video/av87547951/)  
 * 西瓜视频观看方式：[https://www.ixigua.com/i6791019231463866891/](https://www.ixigua.com/i6791019231463866891/)  
 ## 第三天视频地址：
-* 哔哩哔哩观看方式：[敬请期待]()
-* 西瓜视频观看方式：[敬请期待]()
+* 哔哩哔哩观看方式：[https://www.bilibili.com/video/av87547951?p=2](https://www.bilibili.com/video/av87547951?p=2)
+* 西瓜视频观看方式：[https://www.ixigua.com/i6791019437915898371/](https://www.ixigua.com/i6791019437915898371/)
 
 ## 敬请期待
 
