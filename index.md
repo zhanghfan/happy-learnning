@@ -10,7 +10,10 @@
 * 西瓜视频观看方式：[https://www.ixigua.com/i6791019231463866891/](https://www.ixigua.com/i6791019231463866891/)  
 ## 第三天视频地址：
 * 哔哩哔哩观看方式：[https://www.bilibili.com/video/av87547951?p=2](https://www.bilibili.com/video/av87547951?p=2)
-* 西瓜视频观看方式：[https://www.ixigua.com/i6791019437915898371/](https://www.ixigua.com/i6791019437915898371/)
+* 西瓜视频观看方式：[https://www.ixigua.com/i6791019437915898371/](https://www.ixigua.com/i6791019437915898371/)  
+## 第四天视频地址：
+* 哔哩哔哩观看方式：[https://www.bilibili.com/video/av87662922/](https://www.bilibili.com/video/av87662922/)  
+* 西瓜视频观看方式：[https://www.ixigua.com/i6791127361577288203/](https://www.ixigua.com/i6791127361577288203/)  
 
 ## 敬请期待
 
